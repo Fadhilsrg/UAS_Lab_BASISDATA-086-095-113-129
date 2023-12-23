@@ -1,4 +1,6 @@
 # WildTaste
+Link YT: https://youtu.be/8Yj_63GeW_4
+
 Anggarda Muhammad Aziz 221401086
 
 Fadhil Pratama Siregar 221401095
